@@ -1,0 +1,1 @@
+# Wst-pDoProgramowania2022
