@@ -1,1 +1,1 @@
-# Wst-pDoProgramowania2022
+# WstępDoProgramowania2022
